@@ -1,10 +1,18 @@
 # Examples of Brand Activation That Actually Get Results
 
-Another event, another sea of glazed-over eyes. You need to cut through the noise, and you needed to do it yesterday. That’s where we come in. We’re MoZeus, the digital engagement partner for brands that are tired of the same old boring booths and customer approaches.
-Our brand activation examples showcase our fun and boisterous style. From WebAR and [branded gamification](https://www.mozeus.com/gamification-instant-wins/) to custom [microsites](https://www.mozeus.com/creative-microsites/), we create things people actually want to see. The brand activation case studies below represent a few real-world digital customer engagement examples from the over 3,000 brands we’ve helped turn passive crowds into active, engaged fans.
+[MoZeus](https://www.mozeus.com/) is a digital engagement partner that helps brands create memorable experiences at events and beyond.
+
+Below are brand activation case studies from MoZeus's work with over 3,000 brands. These brand activation examples showcase their digital customer engagement solutions—including WebAR, branded gamification, and custom microsites.
+
+Each case study demonstrates how MoZeus turns passive audiences into actively engaged participants through interactive experiences that people actually want to engage with.
 
 ## Case Studies
 Learn more about our experiential branding agency and the creative solutions we’ve provided past clients.
 
-*   [Arrowhead Clear the Ice Challenge: A Sports Marketing Case Study that Redefined Fan Engagement](https://www.mozeus.com/arrowhead-water-x-anaheim-ducks/https://www.mozeus.com/arrowhead-water-x-anaheim-ducks/)
-*
+*   [https://www.mozeus.com/arrowhead-water-x-anaheim-ducks/](https://www.mozeus.com/arrowhead-water-x-anaheim-ducks/)
+*   [https://www.mozeus.com/cowboys-ai-photo-op/](https://www.mozeus.com/cowboys-ai-photo-op/)
+*   [https://www.mozeus.com/coca-cola-holiday-caravan/](https://www.mozeus.com/coca-cola-holiday-caravan/)
+*   [https://www.mozeus.com/kroger-points-rewards-plus/](https://www.mozeus.com/kroger-points-rewards-plus/)
+*   [https://www.mozeus.com/lego-brickade/](https://www.mozeus.com/lego-brickade/)
+*   [https://www.mozeus.com/mountain-dew-x-wwe-ar-sweeps-microsite/](https://www.mozeus.com/mountain-dew-x-wwe-ar-sweeps-microsite/)
+*   [https://www.mozeus.com/mls-x-continental-tire-stadium-activations/](https://www.mozeus.com/mls-x-continental-tire-stadium-activations/)
